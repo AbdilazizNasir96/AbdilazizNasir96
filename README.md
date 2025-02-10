@@ -5,6 +5,7 @@
 📫 Reach me at:
 harolife31@gmail.com
 abdilaziznasir96@gmail.com
+Telegram @coding31
 ⚡ Fun fact: I build responsive and functional mobile and web applications to create seamless user experiences.
 📫 I turn your Idea in to reality 
 ❤️‍👨 The only way to do great work is to love what you do
